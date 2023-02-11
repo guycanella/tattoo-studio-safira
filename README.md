@@ -1,1 +1,0 @@
-# Tattoo Studio Safira
